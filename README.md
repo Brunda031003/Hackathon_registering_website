@@ -1,7 +1,1 @@
-![Alt Text]('/Users/apple/Desktop/SheCode-main/Screenshot 2025-07-18 at 10.33.07 PM.png')
 
-![Alt Text]('/Users/apple/Desktop/SheCode-main/Screenshot 2025-07-18 at 10.33.45 PM.png')
-
-![Alt Text]('/Users/apple/Desktop/SheCode-main/Screenshot 2025-07-18 at 10.34.03 PM.png')
-
-![Alt Text]('/Users/apple/Desktop/SheCode-main/Screenshot 2025-07-18 at 10.34.17 PM.png')
